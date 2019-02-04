@@ -3,7 +3,7 @@ FEWD assignment 1
 
 ## JILLIAN'S INTRODUCTION
 
-![me at the salon](https://www.instagram.com/p/Br8wryZnLjW/)
+![me at the salon](https://drive.google.com/file/d/1q-5hZM1VWv6OpZ3f9i-yS6We84ggbfe6/view?usp=sharing)
 
 Hello, my name is Jillian McCarthy! I live by the bay in Crown Point, San Diego with my boyfriend of 11 years and my miniature dachshund, Hazel. I am a Southern California native that was born & raised in Los Angeles but relocated to San Diego when I was 17. I love San Diego and am proud to call this place my home!
 
