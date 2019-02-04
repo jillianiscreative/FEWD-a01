@@ -1,7 +1,7 @@
 # FEWD-a01
 FEWD assignment 1
 
-## Jillian McCarthy
+## JILLIAN'S INTRODUCTION
 
 ! [me and hazel](https://www.instagram.com/p/BH-1r4tDYYcRhz6pzT8IXUtXIzfUx8hibF5U-80/)
 
